@@ -1,1 +1,1 @@
-This place is not a place of honor... no highly esteemed deed is commemorated here.
+This place is not a place of honor. No highly esteemed deed is commemorated here.
